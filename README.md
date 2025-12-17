@@ -45,8 +45,8 @@
 ---
 
 ## 🔗 Connect With Me
-- 📧 Email: yourmail@example.com  
-- 💼 LinkedIn: https://linkedin.com/in/yourprofile  
+- 📧 Email: samsonarun2@gmail.com  
+- 💼 LinkedIn: https://linkedin.com/in/samsonarun 
 
 ---
 
